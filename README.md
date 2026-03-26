@@ -51,7 +51,11 @@ Freiheit ist ansteckend: Wer diesen Code nutzt oder verbessert, muss seine Arbei
  * Status: Alpha-Secure (1600 km/h)
 
 
+
+
 4💚²² Hz ... .. . 
+
+
 
 
 
